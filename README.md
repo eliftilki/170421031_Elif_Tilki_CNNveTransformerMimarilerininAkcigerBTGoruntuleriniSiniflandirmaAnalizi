@@ -1,0 +1,1 @@
+# 170421031_Elif_Tilki_CNNveTransformerMimarilerininAkcigerBTGoruntuleriniSiniflandirmaAnalizi
